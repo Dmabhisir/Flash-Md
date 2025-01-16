@@ -31,5 +31,5 @@ Enjoy the diverse features of the Flash-Md  to enhance your conversations and ma
 ## Developer:
 
 - [**Instagram**](https://instagram.com/france.king1)
-- [**WhatsApp**](https://wa.me/254757835036)
+- [**WhatsApp**](https://wa.me/8075157021)
 
